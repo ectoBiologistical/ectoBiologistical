@@ -14,6 +14,11 @@ feel  free  to  int w/ me  in  any way ,  i  don't  bite .
 if  you  wanna  learn  more  about  me ,  just  talk  to  me .
 </p>
 <p align="center">
+yes  ,  i  am  an  <b>irl  /  kin .</b>
+<p align="center">
+you  are  allowed  to  refer  to  me  as  such  .
+</p>
+<p align="center">
 <img src=https://64.media.tumblr.com/c871270a021b65f056c6ee627a45b31f/b4746bdbb4997815-21/s75x75_c1/984caafe8b5bca3782a595f77db73d252b87d7fc.gifv>
 </p>
 <p align="center">
