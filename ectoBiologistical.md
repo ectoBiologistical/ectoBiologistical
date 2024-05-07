@@ -1,23 +1,23 @@
-### ꒰୨୧◞ 。ABOUT ME⠀.ᐟ
-### Hey, I'm John.
-### Here's a few facts about me ;
-### I am a Filipino, enby transman. My pronouns are in the links I provided, and my DNI is in there aswell .ᐟ
-### Feel free to cuddle, hide, friend request me, I don't mind, I love to interact .ᐟ
-### Yes, I am an IRL / kin. Feel free to refer to me as such. :)
-### END OF BIO. 🐇 ࣪ ִֶָ ⋆
-### 
+<p align="center">
+  <img src=https://pbs.twimg.com/media/FMsZFy1VcAA67JT.png height=400px>
+<p align="center">
+<img src= https://64.media.tumblr.com/d5d16a7847965f2d864108dc3f034bc4/6468d1b912a28cc0-e7/s500x750/866c0b034d12e7d3820e3213ebb2dc2961dd70b4.pnj>
+</p>
 
-<!--
-**ectoBiologistical/ectoBiologistical** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
--  I’m currently working on ...
--  I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<i>hey , the name's  hal  .
+</p>
+<p align="center">
+feel  free  to  int w/ me  in  any way ,  i  don't  bite .
+</p>
+<p align="center">
+if  you  wanna  learn  more  about  me ,  just  talk  to  me .
+</p>
+<p align="center">
+<img src=https://64.media.tumblr.com/c871270a021b65f056c6ee627a45b31f/b4746bdbb4997815-21/s75x75_c1/984caafe8b5bca3782a595f77db73d252b87d7fc.gifv>
+</p>
+<p align="center">
+<b>dni</b>
+</p>
+<p align="center">
+<a href="https://basic-dni.crd.co/">basic dni criteria</a>
