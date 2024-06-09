@@ -8,7 +8,7 @@
 <i>hey , the name's  hal  .
 </p>
 <p align="center">
-feel  free  to  int w/ me  in  any way ,  i  don't  bite .
+feel  free  to  int w/ me  in  any way ,  i  don't  bite , not  too  hard .
 </p>
 <p align="center">
 if  you  wanna  learn  more  about  me ,  just  talk  to  me .
