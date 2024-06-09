@@ -19,6 +19,8 @@ yes  ,  i  am  an  <b>irl  /  kin .</b>
 you  are  allowed  to  refer  to  me  as  such  .
 </p>
 <p align="center">
+<b>please  do  not  copy  or  take  inspo  off  my  skins  .</b>
+<p align="center">
 <img src=https://64.media.tumblr.com/c871270a021b65f056c6ee627a45b31f/b4746bdbb4997815-21/s75x75_c1/984caafe8b5bca3782a595f77db73d252b87d7fc.gifv>
 </p>
 <p align="center">
